@@ -1,0 +1,2 @@
+# Memokfanta
+Selalu berusaha
